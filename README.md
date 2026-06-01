@@ -1,4 +1,5 @@
 <img width="1320" height="2346" alt="original-B2EAD677-F449-4E91-A3D1-37C865F7DDE4" src="https://github.com/user-attachments/assets/56ae7f8a-58f2-4e58-b523-6784ea8536b2" />
+
 ![IMG_6666](https://github.com/user-attachments/assets/41f60d1e-1252-4c9e-b7d6-56ff9cb9f9ec)
 ![IMG_6039](https://github.com/user-attachments/assets/0e6564d4-73b3-4b28-bb64-ed4c0dab6480)
 ![IMG_3494](https://github.com/shawna-tuli-silicon-valley/california-oil-paint/assets/19508013/e674f2d7-5c82-44a8-9659-dcb67e60886a)
