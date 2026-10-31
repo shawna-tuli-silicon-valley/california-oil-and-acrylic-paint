@@ -1,3 +1,5 @@
+<img width="3000" height="4000" alt="candle" src="https://github.com/user-attachments/assets/cabb1235-9d63-4d56-ae00-4c660deb43ec" />
+
 <img width="4284" height="5712" alt="pumkins" src="https://github.com/user-attachments/assets/ef28c727-ee85-46dd-b348-75ff16b5bf5d" />
 
 <img width="1320" height="2346" alt="original-B2EAD677-F449-4E91-A3D1-37C865F7DDE4" src="https://github.com/user-attachments/assets/56ae7f8a-58f2-4e58-b523-6784ea8536b2" />
